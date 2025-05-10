@@ -1,0 +1,2 @@
+# SuperTrunfo-Novato
+Trabalho escolar
